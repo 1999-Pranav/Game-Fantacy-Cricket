@@ -1,1 +1,1 @@
-# Game-Fantacy-Cricket-
+# Game-Fantacy-Cricket
